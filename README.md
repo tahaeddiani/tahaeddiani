@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Python Projects<br>🌱 I’m currently learning Software Engineering<br>⚡ Fun fact: Shof F Sma
+🔭 I’m currently working on Python Projects<br>🌱 I’m currently learning Software Engineering<br>⚡ Fun fact: Shof F Sma Tl9a Khdma
 
 
 ## 🌐 Socials:
